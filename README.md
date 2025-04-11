@@ -1,1 +1,1 @@
-![Killer Queen]([[https://media.tenor.com/OEzKrlNrTU8AAAAM/kira-yoshikage-killer-queen.gif](https://media1.tenor.com/m/PsA7vuQ7YVIAAAAd/rohan-kishibe-jojo%27s-bizarre-adventure.gif)](https://tenor.com/fybvjfUYL7e.gif))
+![i]([[https://media.tenor.com/OEzKrlNrTU8AAAAM/kira-yoshikage-killer-queen.gif](https://media1.tenor.com/m/PsA7vuQ7YVIAAAAd/rohan-kishibe-jojo%27s-bizarre-adventure.gif)](https://tenor.com/fybvjfUYL7e.gif))
